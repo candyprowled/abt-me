@@ -1,7 +1,7 @@
 # abt-me
 wip
 
-okay, github lurkers of ponytown, listen to me please!!!
+okay, github spies on ponytown, i know you're readin sooooo listen to me please!!!
 
 ## DNI
 

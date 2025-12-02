@@ -12,3 +12,5 @@ tcc, particularly dylann and brenton fans. majority of you are extremely patheti
 p3 doubles.
 
 p3 doubles please
+
+![jd12db](https://github.com/user-attachments/assets/c535b6ca-c453-4942-a4b0-fb7930eefafd)

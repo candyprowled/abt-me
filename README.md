@@ -8,8 +8,7 @@ majority of us don't believe in doubles, in fact, many of us accept them with op
 
 ![9i63db](https://github.com/user-attachments/assets/1da43c0d-0c6d-47fd-a921-ecc4059e0aca)
 
-## DN!
-I
+## DNI!
 
 ***p3 dude doubles unless i choose you to share with PLEASEEE***
 

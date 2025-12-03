@@ -6,7 +6,7 @@ our outfits are not cosplays unless stated otherwise, we are a system. i, writin
 
 majority of us don't believe in doubles, in fact, many of us accept them with open arms! however, some of us also have major issues and are generally not fond of those with the same source even if you don't act similarly, so generally be careful around those ones. they'll let you know if they're uncomfy. hey, don't complain to me, it's **their** boundaries, *not mine!*
 
-[9i63db](https://github.com/user-attachments/assets/057145a3-fe73-4a2e-a6e1-1d72da6b4937)
+![9i63db](https://github.com/user-attachments/assets/1da43c0d-0c6d-47fd-a921-ecc4059e0aca)
 
 ## DN!
 I

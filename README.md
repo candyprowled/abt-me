@@ -24,4 +24,6 @@ p3 doubles please
 
 endogenics or anything under that umbrella. i don't care if you don't claim to have OSDDID, i want nothing to do with you.
 
+anyone who expects me to show empathy to them. i'm HYPOempathetic, i experience VERY LITTLE. - notim
+
 ![jd12db](https://github.com/user-attachments/assets/c535b6ca-c453-4942-a4b0-fb7930eefafd)

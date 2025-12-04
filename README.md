@@ -14,6 +14,8 @@ our simons will not want to date you our simons will not want to date you our si
 
 ## DNI!
 
+-14 and 25+
+
 ***p3 dude doubles unless i choose you to share with PLEASEEE***
 
 tcc, particularly dylann and brenton fans. majority of you are extremely pathetic incels

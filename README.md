@@ -8,6 +8,8 @@ majority of us don't believe in doubles, in fact, many of us accept them with op
 
 please do NOT be rude to our gatekeeper, he will cut you off with only him being willing to cut you off. bitch can't take jokes.
 
+our simons will not want to date you our simons will not want to date you our simons will not want to date you our simons will not want to date you you get that through your head our simons will not want to date you
+
 ![9i63db](https://github.com/user-attachments/assets/1da43c0d-0c6d-47fd-a921-ecc4059e0aca)
 
 ## DNI!

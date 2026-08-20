@@ -19,7 +19,7 @@ $\text{\color{#ff33a3} not open to relationships that aren't platonic right now,
 <p align="center">
 $\text{\color{#018AD1} obligatory warning about my mental state I AM UNSTABLE AND UNMEDICATED. TREAD LIGHTLY. I AM NOT USING THIS AS AN EXCUSE TO HURT PEOPLE, I FEEL GENUINE REMORSE FOR PEOPLE I MIGHT ACCIDENTALLY HURT.}$
 <p align="center">
-$\text{\color{#ff33a3} maybe protective over my interests but thats only because many of the people i show everything i love to bits turn out to be BAD..}$
+$\text{\color{#ff33a3} maybe protective over my interests.. nothing personal, i had bad experiences!!}$
 <p align="center">
 <img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled81_20260820132826.png">
 <p align="center">

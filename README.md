@@ -1,5 +1,5 @@
 <p align="center">
-wip. this is gonna be super cool some day i swear. I ALSO BLOCK FREELY OK AND IF YOY WAANT TO BE FRIENDS IWVEC I AM SEVERELY PARANOID AND SOCIALLY ANXIOUS OK BEWARE. DNI IF YOU ARE FRIENDS WITH CHRONICAL PLSPSLSPSPS
+wip. this is gonna be super cool some day i swear.
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=factyboy&color=1b55ff&label=୭˚.&abbreviated=true">
 <p align="center">

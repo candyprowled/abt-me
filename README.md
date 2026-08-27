@@ -1,5 +1,5 @@
 <p align="center">
-wip. this is gonna be super cool some day i swear.
+wip. this is gonna be super cool some day i swear. I ALSO BLOCK FREELY OK AND IWVEC I AAM SEVERELY MENTALLY ILL!!!! I AM SEEKINF HELP!!!! BEWARE
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=factyboy&color=1b55ff&label=୭˚.&abbreviated=true">
 <p align="center">

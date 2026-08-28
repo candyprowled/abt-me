@@ -3,4 +3,4 @@ wip. this is gonna be super cool some day i swear.
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=factyboy&color=1b55ff&label=୭˚.&abbreviated=true">
 <p align="center">
-<img src="https://file.garden/aYVH1hlf0CoLr2FO/IMG_2787.png">
+<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled96_20260829023350.png">
